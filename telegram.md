@@ -7,6 +7,216 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/28 23:43
+---
+
+## VahidOOnLine — post 240860
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240860_1779135204.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«سکوت نکنیم، صدای فاطمه سپهری باشیم»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240859
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240859_1779135205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهوری آمریکا، در پیامی در شبکه اجتماعی تروث سوشال نوشت:
+
+««امیر قطر، تمیم بن حمد آل ثانی، ولیعهد عربستان سعودی، محمد بن سلمان آل سعود، و رئیس امارات متحده عربی، محمد بن زاید آل نهیان، از من خواسته‌اند حمله نظامی برنامه‌ریزی‌شده‌مان علیه جمهوری اسلامی ایران را که قرار بود فردا انجام شود، متوقف کنم؛ زیرا اکنون مذاکرات جدی در جریان است و به اعتقاد آن‌ها، به‌عنوان رهبران بزرگ و متحدان ما، توافقی حاصل خواهد شد که برای ایالات متحده آمریکا، همه کشورهای خاورمیانه و فراتر از آن بسیار قابل قبول خواهد بود.
+
+این توافق، مهم‌تر از همه، شامل این خواهد بود که ایران هیچ سلاح هسته‌ای نداشته باشد!
+
+بر اساس احترامم به رهبران یادشده، به وزیر جنگ، پیت هگست، رئیس ستاد مشترک نیروهای مسلح، ژنرال دنیل کین، و ارتش ایالات متحده دستور داده‌ام که حمله برنامه‌ریزی‌شده به ایران را فردا انجام ندهند؛ اما همزمان به آن‌ها دستور داده‌ام در صورتی که توافق قابل قبولی حاصل نشود، برای اجرای یک حمله کامل و گسترده علیه ایران، در هر لحظه آماده باشند.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240858
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240858_1779135206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌
+خبرگزاری‌های داخل ایران گزارش دادند پدافند هوایی قشم شامگاه دوشنبه فعال شده است. مقام‌های جمهوری اسلامی توضیحی درباره علت فعالیت پدافند هوایی در این جزیره ارائه نکرده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240857
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240857_1779135206.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«رشید مظاهری به خاطر بیان عقیده_اش در بازداشت است»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240856
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240856_1779135208.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+«صدای فاطمه سپهری باشیم»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 240855
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_240855_1779135209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تجمع ایرانیان در لیسبون مقابل سفارت نروژ؛ اعتراض به دیدار سیاستمداران نروژی با جمهوری اسلامی
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11593
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس: حمله پهپادی علیه گروه پژاک در شمال عراق
+
+رسانه‌های عراقی گزارش دادند مقر گروه‌ پژاک در استان سلیمانیه عراق با چندین فروند پهپاد مورد حمله قرار گرفت.
+@withyashar
+</div>
+
+## WithYashar — post 11592
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید : ترامپ تو هر زمانی همه گزینه‌ها رو برای مقابله با ایران داره.
+@withyashar
+</div>
+
+## kianmeli1 — post 87473
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87473_1779135210.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴به نظر می رسد امشب امارات حملاتی به قشم داشته است
+
+طرفداران حکومت به خیابان آمده اند شعار مرگ بر امارات سر میدهند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87472
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87472_1779135211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴زیرنویس تلویزیون جمهوری اسلامی
+
+ترامپ برای پنجمین بار عقب نشینی کرد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴خضریان: بسیاری از مسئولان ارشد نظام معتقدند که باید در برابر محاصره دریایی آمریکا، پاسخ نظامی داده شود
+
+‏علی خضریان: آمریکا در وضعیت ضعف نظامی قرار دارد
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴روداو به نقل از عضو رهبری کومله زحمتکشان کردستان ایران اعلام کرد که اردوگاه «سورداش» در سلیمانیه با چهار موشک هدف حمله قرار گرفت و در پی آن دو نفر زخمی شدند
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87469
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴آنا کلی، معاون سخنگوی کاخ سفید، در گفت‌وگو با فاکس نیوز اعلام کرد جمهوری اسلامی اجازه نخواهد داشت اورانیوم غنی‌شده در اختیار داشته باشد و این موضوع خط قرمز دونالد ترامپ در مذاکرات است. تهران نه‌تنها نباید به سلاح هسته‌ای دست پیدا کند، بلکه باید مواد غنی‌شده را نیز تحویل دهد
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 337832
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337832" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی ‌‌‏﻿﻿۲۴ با فرداد فرحزاد: احتمال از سرگیری جنگ؛ ترامپ: تهران می‌داند چه اتفاقی می‌افتد
+@iranintlTV
+</div>
+
+## FarsiVOA — post 218090
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218090_1779135212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️فاطمه حقیقت‌جو در برنامه تفسیر خبر: مشروعیت جمهوری اسلامی از بین رفته‌است
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218089
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218089_1779135213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️بهزاد احمدی نیا در برنامه تفسیر خبر: جمهوری اسلامی معیشت مردم را به گروگان خود گرفته است
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14455
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14455_1779135214.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ایران سامانه «هرمز سیف» را برای ثبت‌نام کشتی‌های عبوری از تنگه هرمز راه‌اندازی کرد جمهوری اسلامی ایران سامانه‌ای تحت عنوان «هرمز سیف» را با هدف ارائه خدمات به کشتی‌های عبوری از تنگه هرمز راه‌اندازی کرده است. بر اساس این طرح، ناخدایان و شرکت‌های کشتیرانی می‌توانند…
+</div>
+
+## alonews — post 120961
+
+<div align="center">
+  <img src="telegram/content/alonews_120961_1779135214.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دیدم صاحب اینجا، یک ساندویچ ساده به این دوست بازیافتیمان که کمی دورتر مشغول سطل زباله بود، داد. چند دقیقه بعد که ساندویچش را خورد، در حالی که حواس کسی نبود، به کناری آمد و شروع کرد به جمع کردن میز و صندلی‌ها و رفت.
+ایشان رایگان نخورد.
+در شگفتم از مفت‌خورها، مال مردم‌خورهای تسبیح به دست
+
+[@AloTweet]
+</div>
+
+## alonews — post 120960
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اخبار جنگ الونیوز AloNews pinned a photo
+</div>
+
+---
 📅 بروزرسانی: 1405/02/28 23:33
 ---
 
