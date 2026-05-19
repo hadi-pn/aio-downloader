@@ -7,6 +7,120 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 18:12
+---
+
+## WithYashar — post 11663
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11663_1779201753.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ: من از به‌کار بردن کلمه “تک‌تیرانداز” خوشم نمی‌آید، اما ما توانایی خیلی خوبی در تک‌تیراندازی داریم.
+@withyashar
+</div>
+
+## WithYashar — post 11662
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11662_1779201754.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در همین لحظه لایو بازدید پرزیدنت ترامپ از مراحل ساخت سالن رقص کاخ سفید
+@withyashar
+</div>
+
+## IranIntlTV — post 337942
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337942_1779201756.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای سه‌شنبه ۲۹ اردیبهشت
+@iranintltv
+</div>
+
+## IranIntlTV — post 337941
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_337941_1779201757.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان جهانی بهداشت اعلام کرد با توجه به شتاب شیوع ویروس ابولا، وضعیت اضطراری بین‌المللی برقرار است. دبیرکل سازمان جهانی بهداشت گفت ابعاد و سرعت شیوع، «بسیار نگران‌کننده» و بیش از برآوردهای اولیه است.
+
+گفت‌وگو با مازیار صدری، فوق تخصص مراقبت‌های ویژه
+@iranintltv
+</div>
+
+## DW_Farsi — post 124874
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📸 مراسم ازدواج "زوج‌های جان‌فدا"؛ کارناوال عروس‌ودامادها با خودروهای جنگی در تهران
+
+در حالی‌که ایران در وضعیت آتش‌بسی شکننده به سر می‌برد و سایه جنگ، ناامنی، بحران اقتصادی و بیکاری بر زندگی مردم سنگینی می‌کند، جمهوری اسلامی همچنان می‌کوشد تصویری عادی و حتی پرشور از وضعیت کشور ارائه دهد که فاصله‌ای آشکار با واقعیت روزمره بسیاری از شهروندان دارد.
+
+سپاه پاسداران از برگزاری مراسم حکومتی موسوم به "پیوند آسمانی زوج‌های جان‌فدا" خبر داده که در آن عروس و دامادها با جیپ‌ها و خودروهای نظامی گل‌آرایی‌شده در خیابان‌های تهران به حرکت درآمدند.
+@dw_farsi
+</div>
+
+## IranianMinds — post 20391
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ:
+
+ممکن است مجبور شویم یک حمله دیگر به ایران انجام دهیم، اما مطمئن نیستم.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20390
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20390_1779201758.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وزارت خزانه‌داری آمریکا سازندگان ناوگان‌های حامی فلسطین را تحریم کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 121119
+
+<div align="center">
+  <a href="telegram/content/alonews_121119_1779201759.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع امارات ادعا کرد که سامانه‌های پدافند هوایی در ۴۸ ساعت گذشته، ۶ فروند پهپاد را رهگیری کرده‌اند.
+
+
+🔴تحقیقات روشن کردند که حمله پهپادی ۲۷ اردیبهشت (۱۷ مه) به نیروگاه هسته‌ای برکه از عراق انجام شده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121118
+
+<div align="center">
+  <a href="telegram/content/alonews_121118_1779201759.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ درباره سالن رقص کاخ سفید:
+تمام این هزینه‌ها را خودم پرداخت کرده‌ام. این یک هدیه است.
+
+
+🔴این هدیه‌ای به ایالات متحده آمریکا است
+
+
+🔴این بیش از یک هدیه است؛ این قرار است یکی از زیباترین ساختمان‌هایی باشد که تاکنون در کشور یا در واشنگتن دی‌سی ساخته شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 18:02
 ---
 
