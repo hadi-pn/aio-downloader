@@ -7,6 +7,108 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 04:22
+---
+
+## FoxNewsTwitter — post 341914
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341914_1779151959.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NFL legend Bill Belichick reflects on his partnership with Tom Brady and the football dynasty they built on "Hang Out with Sean Hannity."
+
+"I learned so much from Tom. I never played quarterback. Tom saw the game through a quarterback's eyes. I saw the game through a coach's eyes. Together, I think we both learned a lot from each other — Tom on how defensive coaches looked at him or looked at offense, and me on what a quarterback can do and what he can't do, what's hard, what's easy, what I can see, what I can't see, and how you see the game."
+
+Catch the full podcast episode starting Tuesday at 10 AM ET. | @seanhannity
+</div>
+
+## FoxNewsTwitter — post 341913
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341913_1779151962.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: San Diego Police Chief Scott Wahl revealed that the mother of one of the suspects called authorities before the mosque attack, warning that her son was missing and may have been suicidal.
+
+Wahl said the mother reported multiple weapons missing, her vehicle gone and that her son was traveling with a companion while dressed in camouflage, which "began to trigger a larger threat-assessment picture."
+</div>
+
+## Hranews — post 113026
+
+<div align="center">
+  <img src="telegram/content/Hranews_113026_1779151964.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میان موشک و سرکوب؛ گزارش مجموعه فعالان حقوق بشر درباره مخاصمه نظامی ایالات متحده-اسرائیل و ایران منتشر شد
+
+
+💥
+💥
+💥
+💥
+💥 – امروز، مجموعه فعالان حقوق بشر در ایران گزارش جدیدی را در ۲۴۰ صفحه و دو زبان منتشر کرد که به بررسی کارزار نظامی ایالات متحده و اسرائیل در ایران در فاصله ۹ اسفند ۱۴۰۴ تا ۱۹ فروردین ۱۴۰۵ (۲۸ فوریه تا ۸ آوریل ۲۰۲۶) می‌پردازد.
+
+این گزارش بر پایه ۱۷۷ منبع تأییدشده ــ شامل گزارش‌های منابع آزاد و شبکه میدانی مجموعه فعالان حقوق بشر در داخل کشور ــ ۶٬۳۲۴ رویداد منحصربه‌فرد شامل ۱۲٬۷۹۸ حمله مجزا را مستندسازی کرده است.
+مجموعه فعالان تاکید کرد این گزارش با هدف ارائه روایت جامع از کل درگیری تهیه نشده است. یافته‌های آن صرفاً به رویدادهایی محدود می‌شود که در داده‌های این نهاد مستندسازی و راستی‌آزمایی شده‌اند.
+
+📊 یافته‌های کلیدی گزارش
+◾️ ثبت ۶٬۳۲۴ رویداد منحصربه‌فرد و ۱۲٬۷۹۸ حمله مجزا
+◾️ ۷۷ درصد رویدادها شامل آسیب به غیرنظامیان یا اماکن غیرنظامی
+◾️ ثبت دست‌کم ۳٬۶۳۶ مورد مرگ، از جمله ۱٬۷۰۱ غیرنظامی
+◾️ کشته شدن ۳۰۷ کودک و زخمی شدن ۲٬۲۱۳ کودک
+◾️ تمرکز ۴۴٫۸۵ درصدی رویدادها در استان تهران
+◾️ هدف قرار گرفتن یا آسیب دیدن مدارس، مراکز درمانی، مراکز فرهنگی و زیرساخت‌های حیاتی
+
+⚠️ الگوهای نگران‌کننده
+این گزارش چندین الگوی نگران‌کننده را برجسته می‌کند، از جمله:
+◾️ ضعف در راستی‌آزمایی اهداف
+◾️ استفاده محدود از نظارت انسانی در برخی فناوری‌های هدف‌گیری
+◾️ هشدارهای ناکافی پیش از حملات
+◾️ استفاده از تسلیحات انفجاری سنگین در مناطق پرجمعیت
+◾️ حملات تکراری به برخی مناطق غیرنظامی
+◾️ آسیب گسترده به زیرساخت‌های غیرنظامی
+
+🚨 این گزارش همچنین به بازداشت گسترده شهروندان در ایران اشاره دارد؛ دست‌کم ۴٬۰۲۳ نفر با اتهامات مرتبط با امنیت ملی یا جنگ بازداشت شده‌اند.
+
+از سوی دیگر تشدید محدودیت‌های امنیتی، گسترش ایست‌های بازرسی و محدودیت‌های گسترده اینترنت از دیگر پیامدهای مستندسازی‌شده عنوان شده است.
+
+در همین بازه زمانی، ۵۰ مورد اعدام ثبت شده که ۳۲ مورد آن با اتهامات سیاسی و امنیتی مرتبط بوده است.
+
+
+📎 ادامه گزارش به زبان فارسی
+
+📎 دانلود مستقیم فایل پی دی اف گزارش از تلگرام
+
+📎 دانلود مستقیم فایل پی دی اف گزارش از سایت
+
+📎 Complete report in English
+
+📎Direct download of the English PDF
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## Hranews — post 113025
+
+<div align="center">
+  <a href="https://t.me/hranews/113025" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+میان موشک و سرکوب؛ گزارش مجموعه فعالان حقوق بشر درباره مخاصمه نظامی ایالات متحده-اسرائیل و ایران منتشر شد 
+💥
+💥
+💥
+💥
+💥 – امروز، مجموعه فعالان حقوق بشر در ایران گزارش جدیدی را در ۲۴۰ صفحه و دو زبان منتشر کرد که به بررسی کارزار نظامی ایالات متحده و اسرائیل در ایران…
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 04:12
 ---
 
