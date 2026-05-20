@@ -7,6 +7,174 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 19:03
+---
+
+## VahidOOnLine — post 241167
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241167_1779291231.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیصل بن فرحان، وزیر خارجه عربستان سعودی، نوشت ریاض از تصمیم رییس‌جمهوری آمریکا برای دادن فرصت دوباره به مذاکرات با جمهوری اسلامی به‌منظور دستیابی به توافقی که به پایان جنگ و بازگشت امنیت و آزادی کشتیرانی در تنگه هرمز به وضعیت پیش از ۹ اسفند ۱۴۰۴ منجر شود، قدردانی می‌کند.
+
+او همچنین از تلاش‌های مستمر پاکستان برای میانجی‌گری در این زمینه تقدیر کرد و در شبکه ایکس نوشت عربستان سعودی امیدوار است جمهوری اسلامی از این فرصت برای جلوگیری از «پیامدهای خطرناک تشدید تنش» استفاده کرده و فورا به تلاش‌ها برای پیشبرد مذاکرات پاسخ دهد.
+
+وزیر خارجه عربستان سعودی افزود هدف از این تلاش‌ها، دستیابی به توافقی جامع است که صلح پایدار در منطقه و جهان را محقق کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241166
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241166_1779291232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، مهدی مهمدی کرتلائی، ۱۶ ساله، در شامگاه ۱۹ دی و هم‌زمان با فراخوان شاهزاده، در محدوده شوشتر و روستای عقیلی در استان خوزستان، با شلیک گلوله جنگی نیروهای حکومتی کشته شد.
+
+بنا بر این گزارش، پیکر او پس از دریافت پول و گرفتن تعهد از خانواده تحویل داده شد و صبح شنبه ۲۰ دی، در شرایط امنیتی و با حضور شمار محدودی از بستگان به خاک سپرده شد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241165
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241165_1779291232.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد سلطان الجابر، مدیرعامل شرکت ملی نفت ابوظبی، اعلام کرد امارات متحده عربی در سال ۲۰۲۵ ساخت خط لوله جدیدی را که برای دور زدن تنگه هرمز طراحی شده، پیش برده و این پروژه اکنون ۵۰ درصد تکمیل شده است.
+
+به گفته الجابر، امارات متحده عربی اجرای این پروژه را برای بهره‌برداری تا سال ۲۰۲۷ تسریع کرده است.
+
+دفتر رسانه‌ای ابوظبی نیز هفته گذشته اعلام کرده بود این خط لوله قرار است ظرفیت صادرات نفت امارات از طریق بندر فجیره را تا سال ۲۰۲۷ دو برابر کند.
+
+الجابر گفت بخش زیادی از انرژی جهان همچنان از چند گلوگاه محدود عبور می‌کند و امارات به همین دلیل بیش از یک دهه پیش تصمیم گرفت در زیرساخت‌هایی سرمایه‌گذاری کند که تنگه هرمز را دور می‌زنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11762
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11762_1779291233.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوتین پکن رو ترک کرد
+
+@withyashar
+</div>
+
+## mwarmonitor — post 9355
+
+
+
+
+## FoxNewsTwitter — post 341995
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341995_1779291234.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST NOW: President Trump arrives at Groton–New London Airport as he prepares to give the commencement speech at this year's United States Coast Guard Academy graduation.
+</div>
+
+## pm_afshaa — post 91114
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما در «مراحل نهایی» مذاکرات با ایران هستیم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338105
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338105_1779291237.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فیصل بن فرحان، وزیر خارجه عربستان سعودی، نوشت ریاض از تصمیم رییس‌جمهوری آمریکا برای دادن فرصت دوباره به مذاکرات با جمهوری اسلامی به‌منظور دستیابی به توافقی که به پایان جنگ و بازگشت امنیت و آزادی کشتیرانی در تنگه هرمز به وضعیت پیش از ۹ اسفند ۱۴۰۴ منجر شود، قدردانی می‌کند.
+
+او همچنین از تلاش‌های مستمر پاکستان برای میانجی‌گری در این زمینه تقدیر کرد و در شبکه ایکس نوشت عربستان سعودی امیدوار است جمهوری اسلامی از این فرصت برای جلوگیری از «پیامدهای خطرناک تشدید تنش» استفاده کرده و فورا به تلاش‌ها برای پیشبرد مذاکرات پاسخ دهد.
+
+وزیر خارجه عربستان سعودی افزود هدف از این تلاش‌ها، دستیابی به توافقی جامع است که صلح پایدار در منطقه و جهان را محقق کند.
+https://iranintl.com/202605208600
+</div>
+
+## IranIntlTV — post 338104
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338104_1779291238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش‌های رسیده به ایران‌اینترنشنال، مهدی مهمدی کرتلائی، ۱۶ ساله، در شامگاه ۱۹ دی و هم‌زمان با فراخوان شاهزاده، در محدوده شوشتر و روستای عقیلی در استان خوزستان، با شلیک گلوله جنگی نیروهای حکومتی کشته شد.
+
+بنا بر این گزارش، پیکر او پس از دریافت پول و گرفتن تعهد از خانواده تحویل داده شد و صبح شنبه ۲۰ دی، در شرایط امنیتی و با حضور شمار محدودی از بستگان به خاک سپرده شد
+https://iranintl.com/202605209075
+</div>
+
+## IranIntlTV — post 338103
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338103_1779291238.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری رویترز گزارش داد سلطان الجابر، مدیرعامل شرکت ملی نفت ابوظبی، اعلام کرد امارات متحده عربی در سال ۲۰۲۵ ساخت خط لوله جدیدی را که برای دور زدن تنگه هرمز طراحی شده، پیش برده و این پروژه اکنون ۵۰ درصد تکمیل شده است.
+
+به گفته الجابر، امارات متحده عربی اجرای این پروژه را برای بهره‌برداری تا سال ۲۰۲۷ تسریع کرده است.
+
+دفتر رسانه‌ای ابوظبی نیز هفته گذشته اعلام کرده بود این خط لوله قرار است ظرفیت صادرات نفت امارات از طریق بندر فجیره را تا سال ۲۰۲۷ دو برابر کند.
+
+الجابر گفت بخش زیادی از انرژی جهان همچنان از چند گلوگاه محدود عبور می‌کند و امارات به همین دلیل بیش از یک دهه پیش تصمیم گرفت در زیرساخت‌هایی سرمایه‌گذاری کند که تنگه هرمز را دور می‌زنند.
+https://iranintl.com/202605201938
+</div>
+
+## Dirty_Kids — post 389812
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389812_1779291239.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصباح: اطاعت از احمدی‌نژاد اطاعت از خداست.🙂 پ‌ن: جنگ قدرت یا چی؟ 😉 @Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389811
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389811_1779291239.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مصباح: اطاعت از احمدی‌نژاد اطاعت از خداست.🙂
+
+پ‌ن: جنگ قدرت یا چی؟ 😉
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121345
+
+<div align="center">
+  <a href="telegram/content/alonews_121345_1779291240.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای سفیر اسرائیل در واشنگتن: هرگونه توافق احتمالی با ایران باید بر اساس اصل بی‌اعتمادی کامل و راستی‌آزمایی باشد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 18:54
 ---
 
