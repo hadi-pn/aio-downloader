@@ -7,6 +7,105 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 02:02
+---
+
+## VahidOOnLine — post 241412
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241412_1779402771.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش نیویورک تایمز، شرکت آمریکایی اکسون موبیل به توافقی برای استخراج نفت در ونزوئلا نزدیک شده است؛ اقدامی که حدود دو دهه پس از آن انجام می‌شود که این غول نفتی عملا از ونزوئلا اخراج شد. این توافق چند ماه پس از برکناری نیکلاس مادورو، رهبر ونزوئلا، با حمایت آمریکا مطرح شده است. اخیرا پروازهای مستقیم میان ونزوئلا و آمریکا نیز برقرار شده و نرخ تورم در ونزوئلا حدود پنج ماه پس از بازداشت مادورو و محاکمه او در آمریکا، کاهش یافته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11898
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌های ایرانی: تبادل پیام‌های میان آمریکا و ایران از طریق پاکستان ادامه دارد. وزیر کشور پاکستان با ادامه مذاکرات روز جمعه در ایران خواهد ماند. عاصم منیر، فرمانده ارتش پاکستان در صورت دست‌یابی به «چارچوب توافق» به تهران سفر خواهد کرد.
+@withyashar
+</div>
+
+## WithYashar — post 11897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+النصر با کریستیانو رونالدو قهرمان لیگ عربستان شد.
+@withyashar
+</div>
+
+## IranIntlTV — post 338307
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338307_1779402772.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مشاور دیپلماتیک رییس امارات متحده عربی حملات سپاه پاسداران را «تجاوزی وحشیانه» به کشورهای عربی توصیف کرد و گفت اعتبار تهران از بین رفته است.
+
+او همچنین تاکید کرد بازسازی اعتماد با شعار ممکن نیست.
+
+گفت‌وگو با غسان عاشور، تحلیل‌گر مسائل خاورمیانه
+@iranintltv
+</div>
+
+## IranIntlTV — post 338306
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338306_1779402773.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آژانس بین‌المللی انرژی هشدار داد ادامه تنش‌ها در خاورمیانه و اختلال در عبور نفتکش‌ها از تنگه هرمز می‌تواند بازار جهانی نفت را تابستان امسال با کمبود شدید عرضه روبه‌رو کند.
+
+گفت‌وگو با مهدی مصلحی، کارشناس بازار نفت
+@iranintltv
+</div>
+
+## IranIntlTV — post 338305
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338305_1779402775.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز به نقل از یک مقام ارشد جمهوری اسلامی گزارش داد اختلافات با آمریکا کاهش یافته، اما هنوز توافقی حاصل نشده است.
+
+پولیتیکو نیز نوشت مساله برنامه هسته‌ای ایران و بازگشایی تنگه هرمز همچنان از محورهای اختلاف در مذاکرات است.
+
+جزییات بیشتر با امیر گیتی، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 338304
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338304_1779402777.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همزمان با گمانه‌زنی‌ها درباره اقدام بعدی دونالد ترامپ در برابر جمهوری اسلامی در صورت شکست مذاکرات، مخالفان او در کنگره آمریکا همچنان برای کاهش اختیارات جنگی رییس‌جمهوری تلاش می‌کنند.
+
+گزارش مرضیه حسینی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 14644
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان عزیز
+از سمت هاست دانلودمون‌ یک مشکلی پیش اومده که لایو امشب آپلود نمیشه
+فردا اول وقت پیگیری میکنم و براتون میزارمش 🙏❤️
+ارادتمند ✌️
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 01:52
 ---
 
