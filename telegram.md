@@ -7,6 +7,218 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 21:43
+---
+
+## VahidOOnLine — post 241379
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241379_1779387195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️‌آرین سلیمی، تکواندوکار دارنده مدال طلای المپیک ایران روز پنجشنبه ۳۱ اردیبهشت در پایان روز نخست رقابت‌های تکواندوی قهرمانی آسیا در مغولستان، در وزن ۸۴+ کیلوگرم به مدال طلا رسید.
+سلیمی برابر حریفانی از قرقیزستان، مالزی، کره جنوبی و ازبکستان به پیروزی رسید و در فینال ماولونوف از ازبکستان را شکست داد.
+یاسین ولی‌زاده دیگر تکواندوکار ایران در وزن ۵۴- کیلوگرم هم موفق شد پس از پیروزی مقابل رقبایی از سنگاپور، عربستان، ایران و ازبکستان و شکست در برابر جعفر الداوود از اردن به مدال نقره دست یاید.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241378
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241378_1779387195.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه عباسی، ۳۱ ساله و دانشجوی دانشگاه هنر اصفهان، روز ۱۹ دی‌ماه در جریان انقلاب ملی در بلوار کشاورز شهر اصفهان هنگامی‌ که در حال کمک و پناه دادن به مجروحین بود با اصابت گلوله به گردنش مجروح و دچار قطع نخاع شد. او ۲۱ اسفندماه پس از گذران نزدیک به چند هفته کما، در بیمارستان جان باخت.
+
+بنا به گزارش‌های رسیده به ایران‌اینترنشنال، او پس از یک دوره کما، به هوش آمده و در روزهای پایانی زندگی‌اش حال عمومی بهتری داشته است. خبر درگذشت فاطمه از طریق تماس تلفنی به خانواده اطلاع داده شد.
+
+دوستان فاطمه او را علاقه‌مند به حرفه‌ عکاسی معرفی کرده‌اند.
+
+طبق اطلاعات رسیده به ایران‌اینترنشنال، فاطمه پس از گرفتن تعهد به خانواده تحویل و طی کنترل شدید امنیتی در قطعه ۵۲ باغ رضوان اصفهان به خاک سپرده شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11864
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دولت فرانسه معتقد است بحران خاورمیانه طولانی‌تر از آنچه سایر کشورها تصور می‌کنند، ادامه خواهد داشت.
+@withyashar
+</div>
+
+## WithYashar — post 11863
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیام اطلاعات سپاه به آمریکا: زمان به نفع شما نیست
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342074
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342074_1779387196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: Secretary Duffy faces questions over DOT budget https://twitter.com/i/broadcasts/1qJDzPNjEPzKV
+</div>
+
+## FoxNewsTwitter — post 342072
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Read more about Platner's latest disgraceful posts here ➡️ https://www.foxnews.com/politics/top-off-the-wall-reddit-posts-haunting-graham-platners-maine-senate-bid
+</div>
+
+## FoxNewsTwitter — post 342070
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+</div>
+
+## FoxNewsTwitter — post 342068
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+</div>
+
+## FoxNewsTwitter — post 342067
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342067_1779387197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Graham Platner’s old Reddit account is turning into a political nightmare for the Left.
+
+Thousands of resurfaced Reddit posts tied to the Maine Democrat are now exploding across social media, showing racial remarks, anti-gay slurs, and vicious attacks on veterans and rural Americans.
+
+Platner remains on the campaign trail, but the deeper voters dig into the account, the worse the fallout appears for his Senate bid.
+</div>
+
+## FoxNewsTwitter — post 342066
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342066_1779387198.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Three people are dead and nearly 20 first responders ended up hospitalized after walking into what police say may have been an overdose scene in New Mexico.
+
+Authorities say responders in Mountainair started experiencing nausea and dizziness after exposure to an unidentified substance inside the home.
+
+Hazmat crews later entered the scene in Level-A suits as investigators worked to determine exactly what crews were exposed to. Two first responders were reported in serious condition.
+</div>
+
+## pm_afshaa — post 91173
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سخنگوی وزارت خارجه فرانسه اعلام کرد که این کشور هرگونه نقش احتمالی ناتو در تنگه هرمز را رد و تاکید می‌کند که ماموریت این ائتلاف به خاورمیانه گسترش نمی‌یابد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338278
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338278_1779387199.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاطمه عباسی، ۳۱ ساله و دانشجوی دانشگاه هنر اصفهان، روز ۱۹ دی‌ماه در جریان انقلاب ملی در بلوار کشاورز شهر اصفهان هنگامی‌ که در حال کمک و پناه دادن به مجروحین بود با اصابت گلوله به گردنش مجروح و دچار قطع نخاع شد. او ۲۱ اسفندماه پس از گذران نزدیک به چند هفته کما، در بیمارستان جان باخت.
+
+بنا به گزارش‌های رسیده به ایران‌اینترنشنال، او پس از یک دوره کما، به هوش آمده و در روزهای پایانی زندگی‌اش حال عمومی بهتری داشته است. خبر درگذشت فاطمه از طریق تماس تلفنی به خانواده اطلاع داده شد.
+
+دوستان فاطمه او را علاقه‌مند به حرفه‌ عکاسی معرفی کرده‌اند.
+
+طبق اطلاعات رسیده به ایران‌اینترنشنال، فاطمه پس از گرفتن تعهد به خانواده تحویل و طی کنترل شدید امنیتی در قطعه ۵۲ باغ رضوان اصفهان به خاک سپرده شد.
+https://iranintl.com/202605218377
+</div>
+
+## FarsiVOA — post 218309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺پرزیدنت ترامپ مقاله‌ای درباره «شکست رژیم ایران» را بازنشر کرد
+
+▪️دونالد ترامپ، رئیس جمهوری ایالات متحده، روز پنجشنبه ۳۱ اردیبهشت مقاله‌ای از روزنامه «نیویورک پست» را در حساب کاربری خود در شبکه اجتماعی «تروت سوشال» بازنشر کرد. در این مقاله راهبردهایی برای افزایش فشار بر جمهوری اسلامی و تضعیف ساختار حاکم بر ایران مطرح شده است.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/president-trump-shares-richard-goldberg-artilce-on-iran/8152378.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218308
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرزیدنت ترامپ روز پنج‌شنبه ۳۱ اردیبهشت در کاخ سفید در جلسه‌ای با حضور برخی صاحبان کسب‌و‌کار، به پرسش‌های خبرنگاران در مورد مسائل گوناگون، از جمله مقابله با تهدید هسته‌ای جمهوری اسلامی، پاسخ داد. صدای آمریکا بخشی از این گفت‌و‌گو را به طور مستفیم و با ترجمه همزمان پژواک کیومرثی پخش کرد.
+</div>
+
+## DW_Farsi — post 124980
+
+<div align="center">
+  <img src="telegram/content/DW_Farsi_124980_1779387200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کمیسر عالی سازمان ملل: جمهوری اسلامی از درگیری کنونی برای سرکوب بیشتر مخالفت‌ها بهره‌برداری می‌کند
+
+فولکر تورک، کمیسر عالی حقوق بشر سازمان ملل از اعدام دو مرد دیگر در ایران ابراز تاسف کرد و گفت جمهوری اسلامی از جنگ با آمریکا و اسرائیل برای سرکوب بیشتر مخالفت‌ها بهره‌برداری می‌کند.
+
+دفتر فولکر تورک، کمیسر عالی حقوق بشر سازمان ملل، در شبکه ایکس نوشت: «از زمان آغاز تشدید تنش‌های نظامی، دست‌کم ۳۴ نفر به اتهام‌های سیاسی و امنیت ملی اعدام شده‌اند، از جمله در ارتباط با اعتراض‌های ماه ژانویه. غیرقابل قبول است که مقام‌های ایران از درگیری کنونی برای سرکوب بیشتر مخالفت‌ها بهره‌برداری می‌کنند.»
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14624
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://youtube.com/live/zMW0RhvWank?feature=share
+</div>
+
+## alonews — post 121634
+
+<div align="center">
+  <a href="telegram/content/alonews_121634_1779387201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سازمان اطلاعات سپاه: جمع‌بندی نهادهای اطلاعاتی آمریکا این است: «گذشت زمان به نفع ما نیست و برای رهایی از مخمصه چندلایه، ابتکار و تهدید ایران را جدی بگیرید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121633
+
+<div align="center">
+  <a href="telegram/content/alonews_121633_1779387201.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دولت فرانسه معتقد است بحران خاورمیانه طولانی‌تر از آنچه سایر کشورها تصور می‌کنند، ادامه خواهد داشت.
+
+
+🔴کمک‌های دولتی فرانسه به گاز برای صنایع ماهیگیری و کشاورزی به مدت سه ماه تمدید شده است. فرانسه ۷۱۰ میلیون یورو کمک عمومی اضافی را برای کاهش اثرات بحران گاز اختصاص داده است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 21:33
 ---
 
