@@ -7,6 +7,94 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 09:42
+---
+
+## WithYashar — post 11807
+
+<div align="center">
+  <img src="telegram/content/WithYashar_11807_1779343935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حساب رسمی کاخ سفید تصویری از ترامپ منتشر کرد که زیر آن، خامنه‌ای و یکی از رهبران داعش با برچسب «کشته‌شده»، مادورو با برچسب «بازداشت‌شده» و کاسترو با برچسب «تحت پیگرد» دیده می‌شن.
+
+کاخ سفید در این پست نوشت: «عدالت اجرا خواهد شد.»
+
+@withyashar
+</div>
+
+## pm_afshaa — post 91142
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رامین زله و کریم معروف پور از معترضین دی ماه امروز صبح اعدام شدن 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91141
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_91141_1779343935.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رامین زله و کریم معروف پور از معترضین دی ماه امروز صبح اعدام شدن
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 338191
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338191_1779343936.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بر اساس گزارش کانال ۹ استرالیا، نیروهای دفاعی این کشور از یک پایگاه محرمانه در خاورمیانه ده‌ها ماموریت برای ردیابی موشک‌ها و پهپادهای جمهوری اسلامی انجام دادند.
+
+جزییات بیشتر با علیرضا محبی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## alonews — post 121468
+
+<div align="center">
+  <a href="telegram/content/alonews_121468_1779343937.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رسانه های پاکستان: وزیر کشور پاکستان نقش فعالی را در این برهه برای اطمینان از تبادل دقیق و به موقع پیام میان تهران و واشنگتن ایفا می کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121467
+
+<div align="center">
+  <a href="telegram/content/alonews_121467_1779343937.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک‌تایمز: ایران موفق شد انتظارات آمریکا و اسرائیل برای یک پیروزی سریع را مخدوش کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121466
+
+<div align="center">
+  <a href="telegram/content/alonews_121466_1779343938.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رویترز: سه نفتکش حامل ۶ میلیون بشکه نفت خام عراق، قطر و کویت در حال خروج از تنگه هرمز هستند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 09:32
 ---
 
