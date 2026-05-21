@@ -7,6 +7,272 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 18:22
+---
+
+## WithYashar — post 11847
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بلومبرگ: ایران در حال مذاکره با عمان درباره نحوه ایجاد نوعی سیستم عوارض دائمی است که کنترل این کشور بر ترافیک دریایی از طریق تنگه هرمز رو رسمیت میده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342041
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342041_1779375175.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+This is the aftermath of the deadly hit-and-run crash.
+
+Transportation Secretary Sean Duffy said federal investigators are now looking into how Manvir Singh obtained his commercial driver’s license, along with the trucking company that hired him. https://twitter.com/FoxNews/status/2057436667670126954#m
+</div>
+
+## FoxNewsTwitter — post 342040
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342040_1779375176.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+🚨 BREAKING: Democrats finally release 2024 election autopsy that criticizes Harris campaign but immediately dismiss its contents as 'not ready for primetime'
+</div>
+
+## pm_afshaa — post 91166
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91166_1779375176.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نیروی دریایی سپاه:
+تو 24 ساعت اخیر 31 کشتی دیگر از تنگه هرمز با هماهنگی ما عبور کردن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75595
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75595_1779375177.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه تحقیقی FTM هلند در گزارشی نوشته که توماس اردبرینک، خبرنگار هلندی نیویورک‌تایمز و شبکه NOS در ایران، همزمان مشاور شرکت آبجوسازی هینکن هم در ایران بوده و برای این کار ماهانه تا یک‌سال ۵ هزار یورو دریافت می‌کرد. اردبرینک دریافت مبلغ را انکار کرده.
+
+طبق این گزارش این روزنامه‌نگار به طور منظم کارهای جانبی (پروژه‌ای) برای این شرکت آبجوسازی در ایران انجام می‌داده است و نه تنها کارمندان اعزامی و بازدیدکنندگان را در تهران می‌گردانده، بلکه گفته این شرکت آبجوسازی را با وکلا و مشاوران محلی نیز مرتبط کرده است.
+FSeifikaran
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 338256
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338256_1779375177.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای پنجشنبه ۳۱ اردیبهشت
+@iranintltv
+</div>
+
+## FarsiVOA — post 218294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگ‌ خشونت‌ علیه زنان را تشدید می‌کند با این حال رسانه‌ها در چنین شرایطی دیگر جایی برای مسائلی مانند خشونت و آزار خانگی، زن‌کُشی‌، آزار جنسی، تبعیض‌ جنسیتی، کودک‌همسری و دادگاه‌های خانواده ندارند. در میدان از زنان گفتیم
+</div>
+
+## DW_Farsi — post 124971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 آنگلا مرکل "مجذوب و متأثر" از کتاب "در خیابان‌های تهران"
+
+🔻 گزارشی از منیره طبری
+
+آنگلا مرکل، صدراعظم پیشین آلمان در مراسم معرفی کتاب "در خیابان‌های تهران: زن زندگی آزادی" در برلین هشدار داد که نباید تلاش‌ها و مبارزات زنان ایرانی را در سایه "جنگ ایران" از خاطر برد.
+
+او چهارشنبه ۳۰ اردیبهشت (۲۰ مه) گفت، در ابتدا برای پذیرفتن دعوت‌ به این برنامه تردید داشته، زیرا دیگر یک سیاستمدار فعال نیست، اما این کتاب که روایت‌گر آن نویسنده‌ای ناشناس با نام مستعار "نیلا" است آنچنان او را مجذوب و متأثر کرد که سرانجام این دعوت را پذیرفت.
+
+مرکل در جریان رونمایی از این کتاب، توجه‌ها را به مبارزات جنبش زنان ایران جلب کرد.
+
+این سیاستمدار ۷۱ ساله آلمان در این مراسم در سالن تئاتر "برلینر انسامبل" که از معتبرترین و تاریخی‌ترین سالن‌های نمایش آلمان است متذکر شد که نباید اجازه داد مبارزات زنان ایرانی در سایه اخبار جنگ اسرائيل و آمریکا علیه جمهوری اسلامی به فراموشی سپرده شود.
+
+این سیاستمدار حزب دموکرات‌مسیحی (CDU) آلمان گفت: «بیایید امشب با هم به این موضوع بنگریم، تا زنان و دخترانی که نیلا با کتابش به آن‌ها صدا بخشیده است، و همچنین اشتیاق آن‌ها برای آزادی و کرامت انسانی و ایستادگی‌شان در برابر سلب آزادی و سرکوب، فراموش نشود. تا آن‌ها حس کنند که تنها نیستند.»
+
+مرکل گفت، تردیدش برای دادن پاسخ مثبت به دعوت‌نامه این مراسم به این دلیل بوده که دیگر "نه وظایف اجرایی" دارد و نه "امکان اجرایی‌" که بتواند "به شکلی بر روند تحولات در ایران و به نفع مردم این کشور تأثیر" بگذارد.
+
+📌 برای دسترسی کامل به گزارش به وبسایت دویچه‌وله فارسی مراجعه کنید.
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14602
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14602_1779375178.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+نسخه هوش مصنوعی عملیات اف 5 در کویت به روایت جمهوری اسلامی !
+
+پ.ن:
+قبلا میگفتن یک اف 5 بوده اما الان دوتا نشون دادن !
+طبعتا اگر اف 5 ها با بمب اتم هم پایگاه آمریکایی رو میزدن نباید انقدر تخریب میشد !😄
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14601
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️نیروی دریایی سپاه: ۳۱ فروند کشتی با هماهنگی سپاه از تنگهٔ هرمز عبور کردند
+
+💢روابط عمومی نیروی دریایی سپاه: طی شبانه روز گذشته ۳۱ فروند کشتی اعم از نفتکش، کانتینر بر و سایر کشتی های تجاری با هماهنگی و تامین امنیت نیروی دریایی سپاه از تنگهٔ هرمز عبور کردند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14600
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14600_1779375180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 آژانس بین‌المللی انرژی: بازار نفت ممکن است وارد «منطقه قرمز» شود
+
+💢رئیس آژانس بین‌المللی انرژی (IEA) هشدار داد بحران تنگه هرمز می‌تواند بازار جهانی نفت را در ماه‌های ژوئیه و اوت وارد «منطقه قرمز» کند.
+
+«فاتح بیرول» اعلام کرد:
+▪️ کاهش صادرات نفت خاورمیانه و افت ذخایر استراتژیک همزمان با اوج تقاضای تابستانی، فشار شدیدی بر بازار وارد کرده است
+▪️ راه‌حل اصلی، بازگشایی کامل تنگه هرمز است
+▪️ پیش از آغاز جنگ ایران، حدود یک‌پنجم نفت و گاز جهان از این مسیر عبور می‌کرد
+💢او همچنین افزود:
+▪️ آژانس بین‌المللی انرژی در ماه مارس با آزادسازی ۴۰۰ میلیون بشکه نفت از ذخایر استراتژیک اعضا موافقت کرده بود
+▪️ اما این ذخایر به‌تدریج در حال کاهش است
+▪️ در صورت نیاز، آژانس آماده هماهنگی برای آزادسازی ذخایر بیشتر خواهد بود
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14599
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 انگلیس کاردار اسرائیل را احضار کرد
+
+💢 دلیل؛ رفتار اهانت آمیز وزیر امنیت ملی اسرائیل با بازداشت‌شدگان ناوگان صمود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20492
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آسوشیتدپرس:
+
+عراقچی، وزیر خارجه ایران و قالیباف دیگر به هیچ عنوان مذاکرات را در داخل ایران پیش نمی‌برند و کنترل کل ماجرا در دست سپاه پاسداران می‌باشد.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281707
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281707_1779375180.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻نایب رئیس کمیسیون فرهنگی مجلس ایران می‌گوید که «مسئولان به این نتیجه رسیده‌اند که وصل کردن اینترنت به صلاح همه نیست و اینترنت بین‌المللی در حال حاضر بازگشایی نخواهد شد.»
+
+علی یزدی‌خواه با اشاره به این که قطع اینترنت از دستورات و اختیارات شورای عالی امنیت ملی است، گفت که «به لحاظ مسائل امنیتی، امنیت کشور»، اینترنت جهانی قطع شده است.
+
+او گفت که با وجود قطع اینترنت، «کسب‌وکارها از طریق ارتباطات بانکی، خرید و فروش و سایر خدمات آنلاین همچنان فعال هستند و مردم با مشکل عمده‌ای مواجه نیستند.»
+
+به گفته این نماینده مجلس برخی افرادی که از نظر مسئولان نیاز به دسترسی به اینترنت بین‌الملل داشتند، این امکان به‌صورت محدود برای آن‌ها فراهم شده است.
+
+آقای یزدی خواه افزوده «تقریبا بیش از ۹۰ درصد نیازها و احتیاجات مردم در فضای فعلی برآورده می‌شود و اگر اقشاری هستند که دچار مشکل‌ هستند، قابلیت پیگیری وجود دارد.»
+
+این در حالی است که کارشناسان اقتصادی نسبت به خسارات وارد شده به کسب و کارها در نتیجه قطع اینترنت هشدار داده‌اند.
+
+📸 Getty
+
+https://bbc.in/4fwMLUO
+@BBCPersian
+</div>
+
+## Hranews — post 113079
+
+<div align="center">
+  <img src="telegram/content/Hranews_113079_1779375181.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز پنجشنبه، پارلمان اروپا با تصویب قطعنامه‌ای، ضمن انتقاد از وضعیت حقوق بشر در ایران، خواستار گسترش تحریم‌های هدفمند علیه «مقامات مسئول سرکوب»، از جمله سپاه پاسداران و نهادهای وابسته به رهبری جمهوری اسلامی شد. در این قطعنامه همچنین بر ادامه حمایت از هیئت حقیقت‌یاب سازمان ملل درباره ایران تاکید شده است.
+
+در متن این قطعنامه، نمایندگان پارلمان اروپا با اشاره به مواردی از جمله اعدام‌ها و برخورد با معترضان، از اتحادیه اروپا خواسته‌اند تحریم‌ها علیه مقامات جمهوری اسلامی را گسترش دهد و محدودیت‌هایی نظیر ممنوعیت ورود برخی افراد مرتبط با ساختار قدرت به اروپا را اعمال کند.
+#حقوق_بشر #اعدام #پارلمان_اروپا
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## alonews — post 121582
+
+<div align="center">
+  <a href="telegram/content/alonews_121582_1779375182.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرگزاری اینترفکس: پوتین و شی جین‌پینگ درباره نتیجه سفر ترامپ به چین گفتگو کردند
+
+
+🔴سران روسیه و چین درباره ایران بحث و تبادل نظر کردند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121581
+
+<div align="center">
+  <a href="telegram/content/alonews_121581_1779375182.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 انگلیس کاردار اسرائیل را احضار کرد
+
+
+🔴 دلیل؛ رفتار اهانت آمیز وزیر امنیت ملی اسرائیل با بازداشت‌شدگان ناوگان جهانی صمود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121580
+
+<div align="center">
+  <a href="telegram/content/alonews_121580_1779375182.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع روسیه فیلمی منتشر کرده که نیروهای هسته‌ای این کشور در حال انجام تمرینات اخیر را نشان می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 18:13
 ---
 
