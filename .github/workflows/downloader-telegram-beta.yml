@@ -1,4 +1,4 @@
-name: telegram-downloader-beta
+name: downloader-telegram-beta
 
 on:
   workflow_dispatch:
